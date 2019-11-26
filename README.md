@@ -1,0 +1,2 @@
+# amarindustries
+GitHub Pages
